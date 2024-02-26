@@ -1,1 +1,0 @@
-# Praktikum-pertemuan-2
